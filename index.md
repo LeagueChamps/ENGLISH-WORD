@@ -1,6 +1,5 @@
-## HELP ME SIR
-
-kill me 
+## BECOME ONE 
+BY GAME
 
 
 
@@ -14,4 +13,6 @@ kill me
 
 
 basket pro 
-epic games
+BUY IT NOW!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!
+
+only $123233543256
